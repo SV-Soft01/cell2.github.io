@@ -97,8 +97,8 @@ Si su sesión se cierra inesperadamente:
 
 Para soporte técnico o consultas sobre el sistema, contacte a:
 
-- **Correo**: soporte@svsoft.com
-- **Teléfono**: (123) 456-7890
+- **Correo**: samuelvelazquez0102@gmail.com
+- **Teléfono**: 829-210-8065
 
 ---
 
